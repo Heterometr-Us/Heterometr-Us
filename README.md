@@ -1,5 +1,5 @@
-### Hi there 👋
-<!--
+# Hey there 👋
+
 **Heterometr-Us/Heterometr-Us** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
@@ -8,7 +8,6 @@
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: [telegram/](https://t.me/TheRealMahdi_O)
+- 📫 How to reach me: 🚀[Telegram](https://t.me/TheRealMahdi_O)
 - 😄 Pronouns: HeterometrUs the black scorpion
 - ⚡ Fun fact: i have big di*k
--->

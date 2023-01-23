@@ -10,4 +10,5 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: 🚀[Telegram](https://t.me/TheRealMahdi_O)
 - 😄 Pronouns: HeterometrUs the black scorpion
-- ⚡ Fun fact: i have big di*k
+- ⚡ Fun fact:<details><summary>I Have :</summary>
+    Big *di©k*</details>
